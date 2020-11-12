@@ -1,6 +1,6 @@
 # Filmes-Da-Barbie-no-Drive
 
-•[Barbie e o castelo de diamante] (https://t.co/y2XXta93Yv)
+•Barbie e o castelo de diamante https://t.co/y2XXta93Yv
 
 •barbie e as 12 bailarinas https://t.co/qGGSBECVm8
 
@@ -12,7 +12,7 @@
 
 •barbie: lago dos cisnes https://t.co/ZRnsZTORW2
 
-•barbie: rapunzel https://t.co/JkNvc5cn1o
+•[Barbie rapunzel] (https://t.co/JkNvc5cn1o)
 
 •barbie e a princesa plebeia https://t.co/k5T5AjJyfB
 
