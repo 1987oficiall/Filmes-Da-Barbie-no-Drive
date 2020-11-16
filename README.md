@@ -64,7 +64,7 @@
 
 •[Barbie Portal Secreto](https://drive.google.com/file/d/1P3GR7MeEKI-95xDOLa4aUCr-KXKyr6VY/view?usp=drivesdk)
 
-•[Barbie e As Sapatilha Mágicas](https://drive.google.com/file/d/1-0lhHnAlfTeovFMNDsVu2SdlxY9IRGvf/view?usp=drivesdk)
+•[Barbie e As Sapatilha Mágicas](https://drive.google.com/file/d/19ZOMz2byPeO5uUkD4L2XKAShUMgt-5aO/view?usp=drivesdk)
 
 •[Barbie Mermaida](https://drive.google.com/file/d/1-5_3LGjPIvKSFRbTsTQpvp_i8SZzKMWV/view?usp=drivesdk)
 
